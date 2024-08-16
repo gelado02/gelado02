@@ -1,1 +1,1 @@
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fg1.globo.com%2Fnatureza%2Fnoticia%2Fmacaco-da-selfie-pode-desaparecer-na-indonesia-por-causa-de-sua-carne.ghtml&psig=AOvVaw3Tu1oUiufUEIZNDuN19PoZ&ust=1723925069016000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCIjAz7yn-ocDFQAAAAAdAAAAABAE)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fpin%2F758856605952498162%2F&psig=AOvVaw2b24bW5Ls6MHYefeLfH-2N&ust=1723925891925000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCKjGxceq-ocDFQAAAAAdAAAAABAE)
